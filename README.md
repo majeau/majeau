@@ -1,7 +1,6 @@
 ### Bom dia! 😀
 
 &nbsp;
-&nbsp;
 
 Sobre mim:
 
